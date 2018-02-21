@@ -1,3 +1,4 @@
 Angelina jolie
-Taylor lautner
+Jorge Barcelos
 Vin diessel
+Bruna Marquesine
